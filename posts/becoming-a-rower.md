@@ -61,3 +61,9 @@ I email Vespoli about buying the demo Echo I saw back in August. Also not the bo
 
 9/24  
 I journey to a 'custom roof rack installation' place to get the schpeel on what it would take to get my Volvo set up to carry a boat. Turns out the place isn't very custom at all and they aren't willing to help me. Now, a trailer seems like the only option, so I've got to reduce the budget for the boat, figure out how and where I'm going to store a trailer with a boat on it during the season (not allowed in our driveway in our HOA), and figure out the same during the offseason (our garage will need some modifications for it to fit in there, do I want to cover it and leave it in the backyard, etc). I'm so frustrated. Self-pity here but it's starting to feel like the universe is conspiring to NOT let me row. Objectively I know that's not true, and I'm of course not going to give up, but DAMN. D reminds me that I went through the same thing when I bought my car and the house - looking looking looking and everything is a closed door and then boom the exact thing I'm looking for appears. It's just that, I'm impatient and don't want 'my' boat to appear when it's December and I can't even row until March or April. 
+
+9/25  
+I'm waiting for an intersection light when a Jeep drives past with a fairly long kayak on top of his car. Just foam blocks supporting the hull and tie downs running around the car frame. Hmm. I can easily do that on my car, especially since I won't be driving very far or very fast to get to the lake. 
+
+9/27  
+I decide to buy the boat I want and have it delivered to me. Once it's here, I can more easily answer all my questions about storage and transport. On the one hand it feels like an obscene amount of money to spend on myself but on the other hand my last raise alone covers it, so why not? I've been desperate for years to find more things I can look forward to, and this seems to be one of them, so I'm going for it.
