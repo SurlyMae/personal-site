@@ -3,16 +3,21 @@ date: "2021-11-08"
 title: 'holiday gift ideas'
 ---
 
-_[if i was in charge series](https://www.ashlylamarr.me/posts/if-i-was-in-charge/)_
-
-Dustin & Ashly  
+## Dustin & Ashly  
 [cutting boards](https://www.amazon.com/Winco-CBWT-1824-Cutting-Board-2-Inch/dp/B001DI5VCA/), a few of this same size would be great
 [hot pads](https://www.etsy.com/listing/683267081/crochet-hot-pads-pot-holders-double?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=hot+pads&ref=sr_gallery-1-6&organic_search_click=1&variation0=1392855899&variation1=1967081441)
 [oven mitt](https://www.etsy.com/listing/565119497/linen-oven-mitt-various-colors-linen?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=hot+pads&ref=sc_gallery-1-7&plkey=f83e4764f68502ae9a4ac5438aac7e5baf8457f4%3A565119497&etp=1&variation0=1202706791)
 
 
+## Dustin  
+[socks](https://www.smartwool.com/shop/hike-classic-edition-full-cushion-solid-crew-socks-sw001646?variationId=D11)
+[record rack](https://www.etsy.com/listing/735781753/flip-lp-rack-vinyl-record-storage-rack?variation0=1179651772)
+[cutting board](https://www.etsy.com/listing/1100079117/villa-acacia-meat-cutting-board-with?)
+[LFC hat](https://www.etsy.com/listing/1049846324/the-red-bird-liverpool-retro-minimalist?)
+[robe](https://www.nordstrom.com/s/ugg-robinson-robe/4973724?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=021)
 
-Ashly  
+
+## Ashly  
 [lip stuff](https://iliabeauty.com/products/lip-wrap-hydrating-mask)
 [makeup brush](https://iliabeauty.com/products/perfecting-buff-brush)
 [other book set](https://www.barnesandnoble.com/w/wheel-of-time-premium-boxed-set-v-robert-jordan/1138635590?ean=9781250763969)
@@ -25,20 +30,14 @@ Ashly
 [robe](https://www.nordstrom.com/s/barefoot-dreams-cozychic-ultra-lite-long-robe/5771229?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=022)
 
 
-Dustin  
-[socks](https://www.smartwool.com/shop/hike-classic-edition-full-cushion-solid-crew-socks-sw001646?variationId=D11)
-[record rack](https://www.etsy.com/listing/735781753/flip-lp-rack-vinyl-record-storage-rack?variation0=1179651772)
-[cutting board](https://www.etsy.com/listing/1100079117/villa-acacia-meat-cutting-board-with?)
-[LFC hat](https://www.etsy.com/listing/1049846324/the-red-bird-liverpool-retro-minimalist?)
-[robe](https://www.nordstrom.com/s/ugg-robinson-robe/4973724?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=021)
-
-Joni  
+## Joni  
 CA$H  
 [wishlist](https://www.amazon.com/hz/wishlist/ls/3B0MRPZFC2R6Z?ref_=wl_share)
 [gift card to Pib's](https://www.pibsexchange.com/about)
 [socks](https://www.smartwool.com/shop/womens-hike-classic-edition-full-cushion-solid-crew-socks-socks-sw001648?variationId=J23)
 
-Jax  
+
+## Jax  
 CA$H 
 [poster](https://www.etsy.com/listing/751687910/odd-future-poster-of-poster-ofwgkta?)
 [other poster](https://www.etsy.com/listing/719027186/tyler-the-creator-poster-flower-boy?)
