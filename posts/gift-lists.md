@@ -4,17 +4,17 @@ title: 'holiday gift ideas'
 ---
 
 ## Dustin & Ashly  
-[cutting boards](https://www.amazon.com/Winco-CBWT-1824-Cutting-Board-2-Inch/dp/B001DI5VCA/), a few of this same size would be great
-[hot pads](https://www.etsy.com/listing/683267081/crochet-hot-pads-pot-holders-double?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=hot+pads&ref=sr_gallery-1-6&organic_search_click=1&variation0=1392855899&variation1=1967081441)
-[oven mitt](https://www.etsy.com/listing/565119497/linen-oven-mitt-various-colors-linen?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=hot+pads&ref=sc_gallery-1-7&plkey=f83e4764f68502ae9a4ac5438aac7e5baf8457f4%3A565119497&etp=1&variation0=1202706791)
+[cutting boards](https://www.amazon.com/Winco-CBWT-1824-Cutting-Board-2-Inch/dp/B001DI5VCA/) (2)
+[hot pads](https://www.etsy.com/listing/683267081/crochet-hot-pads-pot-holders-double?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=hot+pads&ref=sr_gallery-1-6&organic_search_click=1&variation0=1392855899&variation1=1967081441) (color and size pre-selected in this link)
+[oven mitt](https://www.etsy.com/listing/565119497/linen-oven-mitt-various-colors-linen?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=hot+pads&ref=sc_gallery-1-7&plkey=f83e4764f68502ae9a4ac5438aac7e5baf8457f4%3A565119497&etp=1&variation0=1202706791) (color pre-selected in this link)
 
 
 ## Dustin  
-[socks](https://www.smartwool.com/shop/hike-classic-edition-full-cushion-solid-crew-socks-sw001646?variationId=D11)
-[record rack](https://www.etsy.com/listing/735781753/flip-lp-rack-vinyl-record-storage-rack?variation0=1179651772)
-[cutting board](https://www.etsy.com/listing/1100079117/villa-acacia-meat-cutting-board-with?)
+[socks](https://www.smartwool.com/shop/hike-classic-edition-full-cushion-solid-crew-socks-sw001646?variationId=D11) (size L, color pre-selected in this link)
+[record rack](https://www.etsy.com/listing/735781753/flip-lp-rack-vinyl-record-storage-rack?variation0=1179651772) (finish pre-selected in this link)
+[cutting board for cocktail ice](https://www.etsy.com/listing/1100079117/villa-acacia-meat-cutting-board-with?)
 [LFC hat](https://www.etsy.com/listing/1049846324/the-red-bird-liverpool-retro-minimalist?)
-[robe](https://www.nordstrom.com/s/ugg-robinson-robe/4973724?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=021)
+[robe](https://www.nordstrom.com/s/ugg-robinson-robe/4973724?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=021) (size and color pre-selected in this link)
 
 
 ## Ashly  
@@ -23,18 +23,19 @@ title: 'holiday gift ideas'
 [other book set](https://www.barnesandnoble.com/w/wheel-of-time-premium-boxed-set-v-robert-jordan/1138635590?ean=9781250763969)
 [cupholder adjusters](https://www.amazon.com/dp/B08DX9BN2P/ref=redir_mobile_desktop?_encoding=UTF8&aaxitk=b778131285a7903fe633bdb692262cd3&hsa_cr_id=6108448620601&pd_rd_plhdr=t&pd_rd_r=eafeae26-d97c-4a5a-b8bb-58aa236856f1&pd_rd_w=69OwR&pd_rd_wg=kumcq&ref_=sbx_be_s_sparkle_mcd_asin_2_img)
 [book set](https://www.barnesandnoble.com/w/wheel-of-time-premium-boxed-set-iv-robert-jordan/1133806909?ean=9781250256270)
-[socks](https://www.smartwool.com/shop/womens-hike-classic-edition-full-cushion-solid-crew-socks-socks-sw001648?variationId=590)
+[other book set](https://www.barnesandnoble.com/w/wheel-of-time-premium-boxed-set-v-robert-jordan/1138635590?ean=9781250763969)
+[socks](https://www.smartwool.com/shop/womens-hike-classic-edition-full-cushion-solid-crew-socks-socks-sw001648?variationId=590) (size L, color pre-selected in this link)
 [fave Monet print](https://www.art.com/products/p12264709-sa-i1641870/claude-monet-the-road-to-bas-breau-fontainebleau-circa-1865.htm), any size
 [Caravaggio print](https://www.art.com/products/p53771678085-sa-i6403132/caravaggio-bacchus.htm?upi=Q1I77Z50&PODConfigID=8880729&sOrigID=35097), any size
 [Liverbird scarf](https://www.etsy.com/listing/646074115/liverpool-gift-liverpool-liver-bird?variation0=939847439)
-[robe](https://www.nordstrom.com/s/barefoot-dreams-cozychic-ultra-lite-long-robe/5771229?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=022)
+[robe](https://www.nordstrom.com/s/barefoot-dreams-cozychic-ultra-lite-long-robe/5771229?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=022) (L/XL, silver)
 
 
 ## Joni  
 CA$H  
 [wishlist](https://www.amazon.com/hz/wishlist/ls/3B0MRPZFC2R6Z?ref_=wl_share)
 [gift card to Pib's](https://www.pibsexchange.com/about)
-[socks](https://www.smartwool.com/shop/womens-hike-classic-edition-full-cushion-solid-crew-socks-socks-sw001648?variationId=J23)
+[socks](https://www.smartwool.com/shop/womens-hike-classic-edition-full-cushion-solid-crew-socks-socks-sw001648?variationId=J23) (size M, color pre-selected in this link)
 
 
 ## Jax  
@@ -45,4 +46,4 @@ CA$H
 [backpack](https://www.backcountry.com/granite-gear-crown-2-60l-limited-edition-backpack?)
 [bluetooth speaker](https://www.amazon.com/Bose-SoundLink-Color-Bluetooth-speaker/dp/B01HETFQKS/)
 [gift card to Pib's](https://www.pibsexchange.com/about)
-[socks](https://www.smartwool.com/shop/hike-classic-edition-full-cushion-solid-crew-socks-sw001646?variationId=207) 
+[socks](https://www.smartwool.com/shop/hike-classic-edition-full-cushion-solid-crew-socks-sw001646?variationId=207) (size L, color pre-selected in this link)
