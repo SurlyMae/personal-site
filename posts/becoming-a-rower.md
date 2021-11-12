@@ -68,3 +68,5 @@ I'm waiting for an intersection light when a Jeep drives past with a fairly long
 9/27  
 I decide to buy the boat I want and have it delivered to me. Once it's here, I can more easily answer all my questions about storage and transport. On the one hand it feels like an obscene amount of money to spend on myself but on the other hand my last raise alone covers it, so why not? I've been desperate for years to find more things I can look forward to, and this seems to be one of them, so I'm going for it.
 
+11/6  
+I get the boat out onto the water for the first time (and probably last, water is already at 50 degrees), and yes it was a challenge and a hassle to get to that point but once I was on the water, it was as amazing as I remembered. I was so happy, being out in the middle of this little lake surrounded by wetland birds and not another single person on the water.
