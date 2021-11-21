@@ -20,13 +20,13 @@ title: 'holiday gift ideas'
 ## Ashly  
 [lip stuff](https://iliabeauty.com/products/lip-wrap-hydrating-mask)
 [makeup brush](https://iliabeauty.com/products/perfecting-buff-brush)
-[other book set](https://www.barnesandnoble.com/w/wheel-of-time-premium-boxed-set-v-robert-jordan/1138635590?ean=9781250763969)
 [cupholder adjusters](https://www.amazon.com/dp/B08DX9BN2P/ref=redir_mobile_desktop?_encoding=UTF8&aaxitk=b778131285a7903fe633bdb692262cd3&hsa_cr_id=6108448620601&pd_rd_plhdr=t&pd_rd_r=eafeae26-d97c-4a5a-b8bb-58aa236856f1&pd_rd_w=69OwR&pd_rd_wg=kumcq&ref_=sbx_be_s_sparkle_mcd_asin_2_img)
 [socks](https://www.smartwool.com/shop/womens-hike-classic-edition-full-cushion-solid-crew-socks-socks-sw001648?variationId=590) (size L, color pre-selected in this link)
 [fave Monet print](https://www.art.com/products/p12264709-sa-i1641870/claude-monet-the-road-to-bas-breau-fontainebleau-circa-1865.htm), any size
 [Caravaggio print](https://www.art.com/products/p53771678085-sa-i6403132/caravaggio-bacchus.htm?upi=Q1I77Z50&PODConfigID=8880729&sOrigID=35097), any size
 [Liverbird scarf](https://www.etsy.com/listing/646074115/liverpool-gift-liverpool-liver-bird?variation0=939847439)
 [robe](https://www.nordstrom.com/s/barefoot-dreams-cozychic-ultra-lite-long-robe/5771229?origin=keywordsearch-personalizedsort&breadcrumb=Home%2FAll%20Results&color=022) (L/XL, silver)
+[reading pillow](https://www.bedbathandbeyond.com/store/product/pillow-pad-multi-angle-lap-desk/5346942?skuId=67753857)
 
 
 ## Joni  
