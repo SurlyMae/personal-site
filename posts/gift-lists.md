@@ -1,6 +1,6 @@
 ---
-date: "2021-11-08"
-title: 'holiday gift ideas'
+date: "2018-11-08"
+title: ''
 ---
 
 ## Dustin & Ashly  
