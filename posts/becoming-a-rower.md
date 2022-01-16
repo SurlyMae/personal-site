@@ -12,16 +12,13 @@ I'm in a mood. I don't know if these moods are good or bad. Sometimes they lead 
 Not sure why we were told to wear clothes suitable to rowing, as we don't get in the water. We learn the basic movement of rowing, how to lift/hold/move the boats, how to rig, how to get in and out. 
 
 8/4
-rowing lessons day 2
-
-8/9
-rowing lessons day 3 (missed due to air quality)
+On the water for the first time! Well, the water in the Salt Lake marina, at least. The marina is absolutely covered in flies (no, really - the docks look a certain color and then as you walk onto the dock the color flies away because it's nothing but flies, ew) and it's extremely gross and the water looks gross and I very much do not want to fall in. With a rope attached to the stern of our boats, we practice rigging from the dock, getting in, and then rowing back and forth from the dock to get a feel for the boat's stability, and how to work the oars together. 
 
 8/11
-lessons day 4
+On the water again! We venture out into the Great Salt Lake. Getting in and out of the marina takes up a chunk of the lesson, since we're still learning how to steer. Flies cover my legs, my face, my arms, some get swallowed. But I don't care because it is AMAZING being on the water in that little tiny boat!! It feels so good to propel myself across the water, the rowing movement feels so natural, I forget everything - even the constant pain in my body - and just like that the sun is setting and it's time to go home.
 
 8/14
-lessons day 5
+Club row 
 
 8/21 (day ??)  
 I journey to a southern suburb of SLC to see a man about a boat. To see Ed about the Echo shell he's picking up to take back west, actually. I'm surprised it was shipped uncovered. It's blue, not the cutest thing, definitely not as cute as in the photos for some reason. An older model, perhaps? It's slick though, and I still like it. I nervously tilt the gunwales to see how heavy 55 pounds might feel spread out over 18 feet, and it doesn't feel too bad, until I pull it completely off the rack and the bow bangs to the rocky ground. I think, yikes, would I really want to manuever this around all the time? Only later do I remember I needed to find the balance of the boat before lifting it. Can I lift it? Yes. Do I want to add even more stress on my body? Not really. I start thinking of kayak dollies on the drive home. 
@@ -34,7 +31,7 @@ I head to Wyoming tomorrow to check out a boat! I've been emailing back and fort
 
 I'm quite excited to go on a 10-hour road trip! I'm super excited to check out the scull and see if it's suitable for me or not. I'm hoping the daughter won't show up to meet me so I can investigate it at my own very slow pace, not forgetting anything. I just know if someone is hanging around watching, I'll get flustered - you know what, no, fuck that, it's time to stop being hampered by that. Business is business and if I'm spending money I'm going to make sure it's what I need, take my time about it, be thorough. (It's wild how often I act as though I don't deserve to take up space.)
 
-The boat comes with a trailer and dolly and oars and northern Wyoming is a much closer trip than Oregon or the east coast so I'm going for it. My goal tomorrow is to see how hard it is to handle the scull by myself. How difficult is it to move the boat from the trailer to the dolly and back? Is it going to make my arm hurt for hours, or days? Am I going to pee myself a little, or a lot from the effort of lifting it? If I am able to handle it and it's in decent shape I don't see why I wouldn't buy it. The trailer is a plus, I wouldn't have to deal with installing a roof rack on the car and I wouldn't have to worry about lifting the scull over my head, in case it's heavy. I'm assuming in the best case scenario I could back that trailer right down a ramp and launch the boat off it in the way we're all familiar with. 
+The boat comes with a trailer and dolly and oars and northern Wyoming is a much closer trip than Oregon or the east coast so I'm going for it. My goal tomorrow is to see how hard it is to handle the scull by myself. How difficult is it to move the boat from the trailer to the dolly and back? Is it going to make my arm hurt for hours, or days? If I am able to handle it and it's in decent shape I don't see why I wouldn't buy it. The trailer is a plus, I wouldn't have to deal with installing a roof rack on the car and I wouldn't have to worry about lifting the scull over my head, in case it's heavy. I'm assuming in the best case scenario I could back that trailer right down a ramp and launch the boat off it in the way we're all familiar with. 
 
 Anywho, that's all tomorrow. Tonight it's pasta, wine, and a book. 
 
